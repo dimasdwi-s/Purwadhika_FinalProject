@@ -1,4 +1,4 @@
-# Portfolio-Dimas
+# Purwadhika_FinalProject
 
 Dimas Dwi Setiawan, [email](mailto:s.dimasdwi@gmail.com).
 
